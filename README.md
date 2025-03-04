@@ -1,1 +1,1 @@
-https://silk-library-d13.notion.site/cub3D-1acab8a5dc5d80a59142df191d7519c3
+[<img width="1912" alt="cub3D Notion Page" src="https://github.com/TarPeg007/PIPEX_42/assets/172214852/c93c2bc4-bb0f-4d05-adb6-eb206aec148e">](https://silk-library-d13.notion.site/cub3D-1acab8a5dc5d80a59142df191d7519c3)
