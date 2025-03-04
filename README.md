@@ -1,1 +1,1 @@
-[<img width="1912" alt="cub3D Notion Page" src="https://github.com/TarPeg007/cub3D/blob/master/Screen%20Shot%202025-03-04%20at%202.12.52%20PM.png">](https://silk-library-d13.notion.site/cub3D-1acab8a5dc5d80a59142df191d7519c3)
+[<img width="1912" alt="cub3D Notion Page" src="https://github.com/TarPeg007/cub3D/blob/master/Screen%20Shot%202025-03-04%20at%202.23.56%20PM.png">](https://silk-library-d13.notion.site/cub3D-1acab8a5dc5d80a59142df191d7519c3)
